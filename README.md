@@ -13,4 +13,8 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
+-->大家好，我是黄海锦
+没经历过大学生活有几分紧张，不过我很期待能遇到一群志同道合的朋友
+一同在大学发光发热
+
+
